@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CALA850614MSRSYR03
+CALA850614MSRSYR03
